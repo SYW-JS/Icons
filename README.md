@@ -1,2 +1,2 @@
 # Icons
-The ugly but legibility icons that i made with ps.
+The ugly but legibility icons that i made with Ai.
